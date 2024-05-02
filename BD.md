@@ -1,0 +1,51 @@
+# Topics
+------
+- UAP/NHIs 
+- Community building 
+- Destigmatization / Broadening of Audience
+- Guides
+- Geometry / crystal augmentation
+- Divination-style practices
+- Remote Viewing
+- Electromagnetic coils for inducive entrainment
+- Past Lives
+- 
+# Questions  
+---
+- Thoughts on ASMR phenomenon and potential relation/application to hemi-sync / entrainment
+- Can you introduce me to Ralph, or some other NHI or being of interest
+- Setting up mass-gathering psychic gestalt events for community building, experience of greatly enhanced group  energy
+	- Go in with a clear intention / desired outcome for the group to focus on
+	- See what happens
+- Colors 
+- Change in music perception
+- Geomagnetic effects on mood/health
+- What is known, generally, about crystals, from your perspective (absolutely no background knowledge on this one)
+	- Quartz for general energy??
+	- Amethyst??
+- What is the significance of particular geometries IE the 4 sided pyramid (rather than a tetrahedron?)
+- What would be an effective energetic approach to treatment for Crohns? Recommendations? DEC?
+- Are there more people in the area other than me who are familiar with this?
+- What are your thoughts on Tom Campbell / MBT 
+	- I am signed up for their community volunteer program
+- Thoughts on the many facets of the UAP/NHI phenomenon/
+- Thoughts on potentially giving talks / community events periodically either online or in-person
+- Is there a particular strategy you would recommend to get more people engaged?
+	- Most attempts thusfar have proven futile
+- What technical insights into hemi-sync can you share with me?
+- Someone joined the group very early on, "Laura". Instant feeling of recognition and affinity for no obvious reason. Almost certainly haven't actually met this person before. They just returned from TMI. Been MIA 2 months
+- What is considered the "frontier", at this point? Does it even make sense to ask such a question?
+- 
+- 
+
+## M Questions
+----
+- Why is there an anxiety over which language to use (bilingual (fillipino??))
+- UAP
+- 
+## People
+---
+- Tammy Haynes / TPD?
+- Richard Dolan?
+- Relevant people at UofR medicine / neuroscience?
+- 
